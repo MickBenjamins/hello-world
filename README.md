@@ -4,7 +4,9 @@
 
 > *Kanye West*
 
-Music, photography and coding.
+###Music, photography and coding.
+
+Find me on:
  * [Facebook](http://facebook.com/mickbenjamins)
  * [Instagram](http://instagram.com/mickbenjamins)
  * [Soundcloud](http://soundcloud.com/mickbenjamins)
