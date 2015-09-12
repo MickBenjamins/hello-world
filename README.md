@@ -8,5 +8,6 @@
 
 Find me on:
  * [Facebook](http://facebook.com/mickbenjamins)
+ * [Twitter](http://twitter.com/mickbenjamins)
  * [Instagram](http://instagram.com/mickbenjamins)
  * [Soundcloud](http://soundcloud.com/mickbenjamins)
