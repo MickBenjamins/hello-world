@@ -4,7 +4,7 @@
 
 > *Kanye West*
 
-###Music, photography and coding.
+###Finance and technology.
 
 Find me on:
  * [LinkedIn](https://www.linkedin.com/in/mickbenjamins)
