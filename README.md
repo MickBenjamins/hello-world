@@ -7,7 +7,8 @@
 ###Music, photography and coding.
 
 Find me on:
- * [Facebook](http://facebook.com/mickbenjamins)
+ * [LinkedIn](https://www.linkedin.com/in/mickbenjamins)
  * [Twitter](http://twitter.com/mickbenjamins)
+ * [Facebook](http://facebook.com/mickbenjamins)
  * [Instagram](http://instagram.com/mickbenjamins)
  * [Soundcloud](http://soundcloud.com/mickbenjamins)
