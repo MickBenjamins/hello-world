@@ -2,7 +2,7 @@
 
 > Would you believe in what you believe in if you were the only one who believed it?
 >
-> *Kanye West*
+> *-Kanye West*
 
 ### Music, technology and everything nerdy.
 
