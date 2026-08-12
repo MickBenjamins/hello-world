@@ -7,9 +7,8 @@
 ### Music, technology and everything nerdy.
 
 Find me on:
- * [MickBenjamins.com](https://mickbenjamins.com)
+ * [MickBenjamins.com](https://www.mickbenjamins.com)
  * [LinkedIn](https://www.linkedin.com/in/mickbenjamins)
  * [Twitter](https://twitter.com/mickbenjamins)
- * [Facebook](https://facebook.com/mickbenjamins)
  * [Instagram](https://instagram.com/mickbenjamins)
  * [Soundcloud](https://soundcloud.com/mickbenjamins)
